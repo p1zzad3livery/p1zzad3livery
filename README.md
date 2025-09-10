@@ -25,3 +25,21 @@
 <img width="1280" height="158" alt="qbkdfc" src="https://github.com/user-attachments/assets/7aaaf65c-6b7a-4ad1-911f-f02318c0379a" />
 
 <img width="236" height="236" alt="Untitled54_20250910162116" src="https://github.com/user-attachments/assets/394afdf2-e27e-47de-9c54-e1639c1ebf3f" />
+
+
+૮ ˶ˆ ﻌ ˆ˶ ა ╰ PLZ READ BYI BELOW.
+( credit 2 my friend for helping me create this, ily  valk /p :3 )
+
+                 ໒꒰ྀིっ˕ -｡꒱ྀི১
+
+- hi! Call me Seven or Vendetta, either or, most likely I prefer Seven though. Pleased to meet you, I enjoy spending my time on ponytown, which is where you most likely just found me.
+
+- I block/hide without given warning, nor do you need an explanation as to WHY I am blocking you. Trust me, you'll live.
+
+- Please be patient with me, as I am usual a busy person and may not respond immediately if I don't know you well, we aren't friends, etc.
+
+- Refrain from interacting with me if you are below 13, unless you are already my friend, or friends of friends.
+
+- Please note!! I may come off as rude or I forget the use of tonetags, please just remind me or if you need them! Thank you.
+
+- DO NOT talk to me if I have unfriended you, it was for a good reason, the world will keep spinning without me. I assure you.
